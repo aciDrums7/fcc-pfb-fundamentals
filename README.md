@@ -1,3 +1,3 @@
 # fcc-pfb-fundamentals
 
-https://www.youtube.com/watch?v=eWRfhZUzrAc
+https://youtu.be/eWRfhZUzrAc?t=2633
